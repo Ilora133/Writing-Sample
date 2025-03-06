@@ -1,4 +1,0 @@
-# Writing-Sample
-What is Publish or Perish? The phrase “publish or perish” is a term you would hear quite often if you are part of the, higher academia. It showcases the urgency of scholarly publishing for survival in this field.
-It showcases the urgency of scholarly publishing for survival in this field. While it’s important to publish and necessary one might add to advance their careers. From Ph.D. students to senior professors, all have succumbed to the ‘Publish or Peril’ mindset. Currently, all merits and promotions are based on how many papers you can publish within a stipulated amount of time.
-In this essay, I will explain what it means to “publish or perish” and how it has created a certain academic culture with its both positive and negative aspects and why we need quality not just quantity in our work being published.
